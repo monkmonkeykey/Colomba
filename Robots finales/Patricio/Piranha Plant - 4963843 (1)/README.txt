@@ -1,0 +1,4 @@
+Piranha Plant by JuusozArt on Thingiverse: https://www.thingiverse.com/thing:4963843
+
+Summary:
+Change notes:v1.1: Forgot to check the parts for manifold errors. Whoops. Well, it's fixed now.v1.2: Due to the popular demand of no-one, I decided to add a flower pot base to match the Super Smash Bros style.v1.3: Decided to make a dual extrusion version of this model. It is ever so slightly different from the original parts, so unfortunately you can't combine them. Also, fixed the issue with the body and the pot not being able to connect properly.A quick little boredom sculpt.Quite proud of it considering how little time I spent making it. Well, little time for me at least. Is 4 hours a long time to make a sculpture?Also, ever wondered what a piranha plant would look like without lips?Now you know.If you want to sell my printables or otherwise just wanted to support me, you can do so by going to my Patreon:JuusozArt
