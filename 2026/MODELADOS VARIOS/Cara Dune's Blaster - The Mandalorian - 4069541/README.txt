@@ -1,0 +1,4 @@
+Cara Dune's Blaster - The Mandalorian by nataliegroman on Thingiverse: https://www.thingiverse.com/thing:4069541
+
+Summary:
+Update 1.17: I separated the upper receiver parts. Update 12.29: I fixed the scaling issues of the parts and they should fit and tolerance a little nicer. If you still have the old stls, rescale them to 1.25. Here it is! Cara Dune's sidearm from The Mandalorian! I did my best to emulate as much of the original as I could and built this off the real dimensions of a Japanese Nambu. Remember this is Attribution, Non-Commericial! Ask permission before releasing any remixes or selling prints of this! If you end up printing this and wear as a cosplay, tag me on Instagram @nataliegroman. 
